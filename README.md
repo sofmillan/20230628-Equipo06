@@ -1,2 +1,2 @@
-Sofia Isabella Millan Millan - Romina Musacchio - Diana Paola Ruiz - Cristian Monreal
+Sofia Isabella Millan Millan - Romina Musacchio - Diana Paola Ruiz - Cristian Monreal - Alvaro Gomez
 
