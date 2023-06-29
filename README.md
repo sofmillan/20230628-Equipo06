@@ -1,1 +1,1 @@
-Sofia Isabella Millan Millan
+Sofía Isabella Millán Millán
